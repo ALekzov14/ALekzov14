@@ -3,5 +3,5 @@ What if the developer is autistic?
 
 # Steve Jobs
 
-Хорошие художники копируют
+Хорошие художники копируют   
 Великие воруют
