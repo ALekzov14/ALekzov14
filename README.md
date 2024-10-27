@@ -1,4 +1,1 @@
-Хорошие художники копируют   
-Великие воруют
-
-- Steve Jobs
+- Surrounded by idiots who don't think about anything
